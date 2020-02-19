@@ -1,4 +1,4 @@
-# **Holacracy Constitution**
+# **Northshore Constitution**
 
 ## Preamble
 
